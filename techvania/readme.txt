@@ -1,4 +1,4 @@
 This is my website.
-More coming soon.
+Now check out my videos.
 Thanks.
 -Jack
